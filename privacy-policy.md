@@ -29,4 +29,4 @@ This Privacy Policy may be updated from time to time.
 Any changes will be reflected on this page.
 8. Contact
 If you have any questions about this Privacy Policy, please contact:
-Email: MOT Booking Helper.ni@gmail.com
+Email: dvapp.ni@gmail.com
